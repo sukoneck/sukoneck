@@ -1,4 +1,7 @@
-### Hi there 👋
+### Hi 👋 
+
+Great to meet you 🤝 [here's a little about me 📖](https://resume.sukoneck.com/) 
+
 
 <!--
 **sukoneck/sukoneck** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.

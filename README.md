@@ -1,3 +1,3 @@
 ### Hi 👋 
 
-Great to meet you 🤝 [here's a little about me](https://resume.sukoneck.com/) 📖 [and here's a bunch](https://lintr.ee/sukoneck) 🔗
+Great to meet you 🤝 [here's](https://resume.sukoneck.com/) a little about me 📖 and [here's](https://lintr.ee/sukoneck) a bunch 🔗
